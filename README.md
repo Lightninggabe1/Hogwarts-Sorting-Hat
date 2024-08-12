@@ -2,9 +2,7 @@
 Legend has it that the hat once belonged to one of the four founders, Godric Gryffindor, and that it was jointly enchanted by all four founders to ensure that students would be sorted into their eponymous houses, which would be selected according to each founder's particular preferences in students.
 
 'Oh you may not think I'm pretty,
-
 But don't judge on what you see,
-
 I'll eat myself if you can find
 
 A smarter hat than me.
